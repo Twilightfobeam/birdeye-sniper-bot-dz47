@@ -1,4 +1,4 @@
-# 
+# Get the ultimate birdeye sniper bot with premium Scanner for birdeye sniper bot | liquidity-sniping & token-launch-monitoring. Featuring liquidity-sniping and
 
 
 
